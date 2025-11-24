@@ -5,4 +5,3 @@
 - 💬 Ask me about anything
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am Italian!
--->
